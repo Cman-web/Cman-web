@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me cteasdale@outlook.com
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I am so silly :3
+- ⚡ Fun fact: i have good hygiene
 
 <!---
 Cman-web/Cman-web is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
